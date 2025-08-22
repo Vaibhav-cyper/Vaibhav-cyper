@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vaigupta1458@gmail.com**
 
-- 📄 Know about my experiences [Resume]([https://drive.google.com/file/d/1jejzuKEWtR1fFAzd8Ig-7CdRQXFk9XAa/view?usp=sharing])
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1jejzuKEWtR1fFAzd8Ig-7CdRQXFk9XAa/view?usp=sharing)
 
 - ⚡ Fun fact **Funny and Night Owl**
 
